@@ -1,5 +1,5 @@
 ## Hi there 👋
-*SOY GRENYAS ELDERGAS NO TENGO NI IDEA DE QUE HACER*
+*I'M GRENYAS ELDERGAS AND I HAVE NO IDEA WHAT TO DO*
 <!--
 **Darcniac/Darcniac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
